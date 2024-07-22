@@ -1,5 +1,4 @@
-Hooktasy - Crochet Patterns & Amigurumi Creations
-[Hooktasy](https://hooktasy.com/) is your go-to destination for unique and adorable crochet patterns, including charming amigurumi and delightful home decor pieces. Each pattern is crafted with meticulous attention to detail, ensuring clear, easy-to-follow instructions that are perfect for crocheters of all skill levels.
+[Hooktasy](https://hooktasy.com/) - Crochet Patterns & Amigurumi Creations is your go-to destination for unique and adorable crochet patterns, including charming amigurumi and delightful home decor pieces. Each pattern is crafted with meticulous attention to detail, ensuring clear, easy-to-follow instructions that are perfect for crocheters of all skill levels.
 
 Our Mission
 To Share Vietnamese Artistry: We aim to introduce the world to the beauty and creativity of Vietnamese crochet.
